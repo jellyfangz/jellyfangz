@@ -10,7 +10,7 @@
 <br> pleass don't be afraid 2 interact ... i am friendly and entirely nonthreatening !!!! </a>
 <br>
 <p align="center"><br> - 17 limit interaction ! i block freely. mainly proshitters and really hateful people </a>
-<br> i smoke weed, if ur uncomfortable with that i don't reccomend interacting </a>
+<br> i smoke weed, if ur uncomfortable with that i don't reccomend interacting, sorry !!!</a>
 <br> if i have you hidden you're free 2 ask why, sometimes i hide ppl due to crowding and forget ! </a>
 <br>
 <p align="center">
