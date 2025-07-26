@@ -9,9 +9,9 @@
 <br> c + h is okay, i don't bite !! whisper if i don't respond, i'm probs offtab ... </a>
 <br> pleass don't be afraid 2 interact ... i am friendly and entirely nonthreatening !!!! </a>
 <br>
-<p align="center"><br> - 18 limit interaction ! i block freelyyy !!! </a>
+<p align="center"><br> - 18 limit interaction ! i block freelyyy :3c </a>
 <br> i smoke weed, if ur uncomfortable with that i don't reccomend interacting, sorry !!!</a>
-<br> i follow people i think r cool on github / patreon a lot ! </a>
+<br> i follow people i think r cool on github / patreon a lot </a>
 <br>
 <p align="center">
 <br> <a href="https://rentry.co/mattisms">rentry</a>　⌇　<a href="https://jellyfangz.straw.page/">strawpage</a>　⌇　<a href="https://jellyfangz.atabook.org/">atabook </a>
