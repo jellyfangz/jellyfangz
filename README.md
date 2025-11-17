@@ -10,7 +10,7 @@
 <br> pleass don't be afraid 2 interact ... i am friendly and entirely nonthreatening !!!! </a>
 <br>
 <p align="center"><br> - 18 limit interaction ! i block freelyyy :3c </a>
-<br> i am an avid stoner, if ur uncomfortable with that i don't reccomend interacting, sorry !!! peace and love</a>
+<br> i am a stoner, if ur uncomfortable with that i don't reccomend interacting, sorry !!! peace and love</a>
 <br> i follow people i think r cool on github / patreon a lot </a>
 <br>
 <p align="center">
